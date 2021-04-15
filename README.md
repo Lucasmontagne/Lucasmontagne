@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lucasmontagne
+- 👀 I’m interested in everything around me
+- 🌱 I’m currently learning as much as possible
+- 📫 How to reach me ? You can't, I'm too far xD.
